@@ -1,2 +1,2 @@
 
-I pay lakhs to get a degree in here: IIEST, Shibpur, India
+I pay lakhs to get a degree here: IIEST, Shibpur, India
